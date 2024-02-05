@@ -13,5 +13,4 @@ Connect with Praveen from these resources:
 
 * [LinkedIn](https://www.linkedin.com/in/praveentech/)
 * [Twitter](https://twitter.com/praveenscience)
-
-Find their YouTube Channel and also subscribe.
+* [YouTube](https://youtube.com/c/PraveenKumarPurush/)
